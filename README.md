@@ -1,4 +1,9 @@
-## Hi there 👋
+#Hello!! Im typically called Eyes in online spaces!
+
+I use He/they prounons nowadays
+
+
+AFAB! I lowkey forget that not everyone is AFAB :/
 
 <!--
 **TensMyNaTillIspam/TensMyNaTillIspam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
