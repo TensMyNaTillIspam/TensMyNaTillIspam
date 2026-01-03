@@ -1,9 +1,16 @@
 #Hello!! Im typically called Eyes in online spaces!
 
+Minor! DNI if you are a FREAK and like diddling LITTLE KIDS
+
+
 I use He/they prounons nowadays
 
 
 AFAB! I lowkey forget that not everyone is AFAB :/
+
+
+
+Uh dni if homophobic/transphobic/proshipper/pedo
 
 <!--
 **TensMyNaTillIspam/TensMyNaTillIspam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
