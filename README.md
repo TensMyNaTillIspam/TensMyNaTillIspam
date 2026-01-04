@@ -1,8 +1,9 @@
 Hello!! Im typically called Eyes in online spaces!
-   
+
+<img width="400" height="400" alt="IMG_7622" src="https://github.com/user-attachments/assets/3611d670-0d5f-4507-87b2-3bf1b9e56f13" />   
 Minor! DNI if you are a FREAK and like diddling LITTLE KIDS
-![my-tenna-gif-collection-v0-mjndu1i28baf1](https://github.com/user-attachments/assets/9c1b89a4-0aa2-49bc-9ecd-edee3eb9ecc3)
-   
+
+
 I use He/they prounons nowadays
 
 working on an au if i dont crash out before writing it all down
