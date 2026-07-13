@@ -1,26 +1,27 @@
-Hello!! Im typically called Eyes in online spaces!
+Hey. Im Eyes.
+
+Aparrently people just start copying my github stuff when I say something is stupid, so I see ya.
+Unmeddicated for over 3 years by now.
+Taken out of school by parents and they never taught me anything after that.
+Dominican heritage.
 
 <img width="400" height="400" alt="IMG_7622" src="https://github.com/user-attachments/assets/3611d670-0d5f-4507-87b2-3bf1b9e56f13" />   
-Minor! DNI if you are a FREAK and like diddling LITTLE KIDS
 
+Minor! DNI pedos. I've already got sent pics before and been groomed.
 
 I use He/they prounons nowadays
 
-working on an au if i dont crash out before writing it all down
+Split screens au is Discontuined.
 
-AFAB! I lowkey forget that not everyone is AFAB :/
-
-im undiagnosied autistic bc the cost at my age is 3000$ but ive shown signs since i first learned how to walk
+I once got told I should "pray away my autism" back when I was still in school.
 
 used to be in speech therapy 
 
-fav food? uh pie or pizza rolls?
+I'm not really allowed much food.
 
-tbh i hate cake texture wise it makes me angry for no reason
-
-fictkin! im alright near ppl who share sources
+We get it, being a fiction kin is weird or whatever, I personally use it to cope with whats wrong with me. Fuck off.
                           
-Uh dni if homophobic/transphobic/proshipper/pedo
+ dni if homophobic/transphobic/proshipper/pedo
 <!--
 **TensMyNaTillIspam/TensMyNaTillIspam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
